@@ -1,4 +1,4 @@
-# Haruno-Bio-Readme
+# HarunoASumimoto
 
 💜 Hi my name is Angel
 💚 Class of 2025 @ The Bronx High School of Science
